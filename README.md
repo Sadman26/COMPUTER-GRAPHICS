@@ -1,1 +1,1 @@
-# COMPUTER-GRAPHICS By Waliullah Sir
+# COMPUTER-GRAPHICS By Waliullah Sir (lecturer,BUBT)
